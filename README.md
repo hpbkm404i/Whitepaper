@@ -1,9 +1,9 @@
 # Whitepaper
 HPBKM404I 
 HarryPotterBidenKevinMinions404Inu ( BINANCE ) - WHITEPAPER <br/>
-Telegram : https://t.me/hpnkm404inu<br/>
-Twitter  : https://x.com/hpbkm404inu<br/>
-Website  : https://hpbkm404inu.com<br/>
+Telegram : https://t.me/hpnkm404inu <br/>
+Twitter  : https://x.com/hpbkm404inu <br/>
+Website  : https://hpbkm404inu.com <br/>
 
 Disclaimer:
 
